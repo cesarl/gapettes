@@ -66,7 +66,6 @@ Et pour ce prix là tu as la garantie que :
 ![alt text](https://media.giphy.com/media/edOS0HYHK2cXw7zLyE/giphy.gif "Gapette Geo Jap")
 ![alt text](https://media.giphy.com/media/28cR4SkNjMTdNX1mux/giphy.gif "Gapette Fleurs Jap Rouge")
 ![alt text](https://media.giphy.com/media/Kyz9udUpoyrPvdu0SG/giphy.gif "Gapette Fleurs Jap Rayées")
-![alt text](https://media.giphy.com/media/9AInVHJnTKyPhCiWPu/giphy.gif "Gapette Fleurs Jap Dorée")
 ![alt text](https://media.giphy.com/media/9AInVHJnTKyPhCiWPu/giphy.gif "Gapette Fleurs Jap dorée")
 ![alt text](https://media.giphy.com/media/55gLAck0dWhUFaI30R/giphy.gif "Gapette fleurs jap bleue")
 ![alt text](https://media.giphy.com/media/fV8lOvlaXomR0uEZoj/giphy.gif "Gapette Dragon")
