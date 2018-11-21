@@ -1,7 +1,3 @@
----
-title: Gapettes maison
-layout: default
----
 
 ![alt text](https://media.giphy.com/media/cUzLLhnBUUTdPOV9Iz/giphy.gif "Toutes les gapettes")
 
