@@ -1,3 +1,4 @@
 theme: jekyll-theme-cayman
 title: Gapettes faites maison avec beaucoup d'amour
 show_downloads: "false"
+github.is_project_page: "false"
