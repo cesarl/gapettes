@@ -1,8 +1,6 @@
 
 ![alt text](https://media.giphy.com/media/cUzLLhnBUUTdPOV9Iz/giphy.gif "Toutes les gapettes")
 
-Des gapettes de cycliste artisanales, cousues maison avec beaucoup d'amour, en toutes petites quantités. Pour faire quelques heureux et arrondir mes fins de mois.
-
 ### L'histoire
 
 Ca à commencé je m'en suis cousu une tout de traviolle pour m'amuser.
