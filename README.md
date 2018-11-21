@@ -1,6 +1,7 @@
 ---
 title: Gapettes maison
 layout: default
+theme: jekyll-theme-cayman
 ---
 
 ![alt text](https://media.giphy.com/media/cUzLLhnBUUTdPOV9Iz/giphy.gif "Toutes les gapettes")
